@@ -1,4 +1,4 @@
-## 🇬🇧 Hello there! 👋
+## Hello there! 👋
 
 <details>
   <summary><b>ᴇɴ Xem bằng Tiếng Anh (Click to read in English)</b></summary>
